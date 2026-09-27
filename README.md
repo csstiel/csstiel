@@ -11,8 +11,3 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=ruhanaa&color=yellowgreen&label=angels)
 
-hi everypony!! im currently doing commissions :D
-
-if anyone is interested yall can check my [strawpage](https://mozcommissions.straw.page)
-
-info n samples of my artwork will be there! tysm ^_^
